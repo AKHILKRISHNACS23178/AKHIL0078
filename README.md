@@ -1,2 +1,7 @@
 # AKHIL0078
-N   O   O   B
+C
+R
+I
+N
+G
+
